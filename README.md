@@ -11,6 +11,6 @@ Syaheed (syaheed) is here -- 2013-09-12
 Jimmie (jgmaz) is here -- 2013-09-16  
 Nikki (nscheerer) is here -- 2013-09-16  
 Alyssa (aacarey) is here -- 2013-09-16  
-Derek (yzhi) is here -- 2013-09-17
+Derek (yzhi) is here -- 2013-09-17  
 Kevin (krbarton) is here -- 2013-09-17  
 
